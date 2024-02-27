@@ -22,7 +22,7 @@
  
  <br>
  
-  ### If you wanna know something else about me, don't forget to take a look on my Linkedin!!! :D
+  ### If you want to learn more about me, don't forget to check out my LinkedIn profile!!! :D
  
 <div> 
 
